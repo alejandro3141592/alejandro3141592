@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **Lane Following**
 
-- 📫 How to reach me **a01734990@tec.mx**
+- 📫 How to reach me **mtz.alejandro3141592@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
